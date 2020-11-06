@@ -1,0 +1,1 @@
+# class-of-friday-6th
